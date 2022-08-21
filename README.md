@@ -1,0 +1,1 @@
+# LynX-Privacy-Policy
